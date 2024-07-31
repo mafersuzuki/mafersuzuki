@@ -3,7 +3,7 @@
 
 -compartilhamento de variasveis projetos ⭐
 
--gmail: suzuki.maria@escla.pr.gov.br ⭐
+-gmail: suzuki.maria@escola.pr.gov.br ⭐
 
 -instagram: mafer_suzuki
 
