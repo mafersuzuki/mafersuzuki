@@ -1,5 +1,5 @@
  Olá 🐈‍⬛ 
--Estudando no githunb ⭐
+-Estudando no githunb (alura) ⭐
 
 -compartilhamento de variasveis projetos ⭐
 
