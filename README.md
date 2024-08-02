@@ -1,7 +1,7 @@
  Olá 🐈‍⬛ 
 -Estudando no githunb (alura) ⭐
 
--compartilhamento de variasveis projetos ⭐
+-compartilhamento de variaveis projetos ⭐
 
 -gmail: suzuki.maria@escola.pr.gov.br ⭐
 
